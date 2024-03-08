@@ -1,5 +1,6 @@
 # 💫 About Me:
-I'm engineering student 
+I'm engineering student
+Researching and finding solutions for current issues
 
 
 ## 🌐 Socials:
