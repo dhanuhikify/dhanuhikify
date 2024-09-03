@@ -1,6 +1,6 @@
 # 💫 About Me:
-I'm engineering student
-Researching and finding solutions for current issues
+I'm engineering student @Sahyadri collage of engineering and management Manglore
+
 
 
 ## 🌐 Socials:
